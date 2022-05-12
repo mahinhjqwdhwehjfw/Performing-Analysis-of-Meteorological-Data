@@ -11,6 +11,6 @@ Global warming is deteriorating the climate and is affecting various parameters 
 
 WRITTEN BY
 
-Suraj Bhute
-Engineer
+Mahendra
+student
 
